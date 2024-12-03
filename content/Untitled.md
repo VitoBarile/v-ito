@@ -1,1 +1,0 @@
-vito è gay e sborra molto questo lo sapranno tutti
